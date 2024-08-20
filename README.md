@@ -6,3 +6,5 @@ Student at Skyline High School
 ## Projects for Term 1
 
 ## Projects for Term 2
+
+![apple](https://www.applesfromny.com/wp-content/uploads/2020/05/20Ounce_NYAS-Apples2.png)
